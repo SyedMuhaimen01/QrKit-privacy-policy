@@ -1,0 +1,1 @@
+# QrKit-privacy-policy
